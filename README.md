@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Sharing about project
 - 📫 How to reach me Instagram = @aldh3n
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I love animal
+- ⚡ Fun fact: Style and Jurnal is part of my life
 
 <!---
 Onlyons/Onlyons is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
