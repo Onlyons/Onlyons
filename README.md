@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Aldhen Edward Kaunang
 - 👀 I’m interested in Software Developing
-- 🌱 I’m currently learning Pascal Programing Language
+- 🌱 I’m currently learning Pascal Programing Language and Python
 - 💞️ I’m looking to collaborate on Sharing about project
 - 📫 How to reach me Instagram = @aldh3n
 - 😄 Pronouns: He/Him
